@@ -16,6 +16,8 @@ How to assemble:
 
 Please refrain from copying the color model (I used black, white, and orange)... be creative!!!
 
+The biggest value of this mod is that it pretty much eliminates all cleaning, expect for a bit on the front plate.
+
 
 
 
